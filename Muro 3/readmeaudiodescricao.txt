@@ -1,0 +1,1 @@
+﻿Audiodescrição do Muro 3 — Circuito Urbano: Esta obra apresenta traços geométricos e formas abstratas marcantes que dialogam com a arquitetura ao redor. O contraste entre sombras profundas e superfícies iluminadas cria uma percepção tridimensional de ritmo e dinamismo, convidando o público a explorar os caminhos e as texturas da arte visual no espaço público.

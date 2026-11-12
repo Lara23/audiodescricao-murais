@@ -1,0 +1,1 @@
+﻿Audiodescrição do Muro 2 — Circuito Urbano: Em um painel vertical de grandes proporções, tons vibrantes de azul e dourado retratam elementos da natureza e da convivência na cidade. No centro da composição, figuras estilizadas se conectam através de linhas fluidas que percorrem toda a extensão do mural, simbolizando o movimento constante e a diversidade urbana.

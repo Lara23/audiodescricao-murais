@@ -1,0 +1,1 @@
+﻿Audiodescrição do Muro 4 — Circuito Urbano: Uma pintura mural que homenageia a memória cultural e as raízes da comunidade local. Elementos botânicos e grafismos tradicionais entrelaçam-se em harmonia com tonalidades quentes e terrosas, destacando retratos expressivos que refletem a força, identidade e história coletiva do território.

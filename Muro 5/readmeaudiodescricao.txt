@@ -1,0 +1,1 @@
+﻿Audiodescrição do Muro 5 — Circuito Urbano: Composição contemporânea rica em contrastes visuais e cores vívidas, destacando a relação entre a imaginação, a tecnologia e a paisagem da metrópole. Formas orgânicas parecem brotar do concreto urbano, trazendo mensagens de futuro, empatia, inclusão e transformação por meio da arte pública.
