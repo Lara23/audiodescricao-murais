@@ -1,0 +1,1 @@
+﻿Audiodescrição do Muro 1 - Lado direito — Circuito Urbano: Segunda parte da obra mural composta por dois painéis integrados. Neste lado direito, a intervenção artística dá continuidade aos elementos visuais e cromáticos iniciados no lado esquerdo, completando o conjunto visual e dialogando com a arquitetura urbana.
